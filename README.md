@@ -8,3 +8,6 @@
 
 
 Contato: 00001113725588sp@al.educacao.sp.gov.br
+
+
+![](https://tenor.com/assets/img/icons/link.svg)
